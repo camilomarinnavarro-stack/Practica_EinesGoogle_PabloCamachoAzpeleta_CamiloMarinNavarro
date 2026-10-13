@@ -1,3 +1,3 @@
 # Practica_EinesGoogle_PabloCamachoAzpeleta_CamiloMarinNavarro
 SISTEMES BINARIS
-[SISTEMES BINARIS.pdf](https://github.com/user-attachments/files/33388184/SISTEMES.BINARIS.pdf)
+(https://docs.google.com/forms/d/e/1FAIpQLSedKmu7uOvVHTVkuVX9lHestyZ2DsMyZD03lwp7qMNPWmywAQ/viewform?usp=header)
